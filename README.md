@@ -1,6 +1,6 @@
 - 👋 Hey, I’m @HaruBaru69, known as HarutCh, or HarutoChVtuber on other platforms.
 - 👀 I’m interested in coding and art, and am developing a Pikmin fighting game known as Pikmin Brawl.
-- 🌱 I’m currently learning Art and it's many techniques
+- 🌱 I’m currently learning animation and its many techniques
 - 💞️ I’m looking to collaborate on FNF projects and other games for fun!
 - 📫 How to reach me ...
 - @HarutoCh (Twitter), u/Harutoch (reddit)
